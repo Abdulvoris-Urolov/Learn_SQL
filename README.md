@@ -1,0 +1,1 @@
+# Tez Orada Bu Joyda SQL haqida ma'lumotlar bo'ladi😀📍🙂👉👈💪💫🌟📈📤📥📒📕📗📘📙📚📝🖌✒️🖋🖊🔓❗️✅💤🆕0️⃣1️⃣2️⃣3️⃣4️⃣5️⃣6️⃣7️⃣8️⃣9️⃣🔟🔢#️⃣®️©️🔚🔙🔛🔜🔝🇺🇿
